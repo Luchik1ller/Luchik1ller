@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Luchik1ller
+- 👀 I’m interested in create a lot of websites and collaborate with others.
+- 🌱 I’m currently learning Phyton
+- 💞️ I’m looking to collaborate on differents websites to develop my skills
+- 📫 How to reach me: Luchiben_2006@outlook.com
